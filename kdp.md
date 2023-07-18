@@ -12,7 +12,6 @@ In this book, you'll learn how to find the right mentor, build a strong relation
 
 With "The Art of Mentorship in the Workplace," you'll gain the tools and knowledge you need to become a successful mentor or mentee, and to create a culture of mentorship within your organization. So whether you're just starting out in your career or looking to take it to the next level, dive into this book and discover the power of mentorship to boost your career and achieve your goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
