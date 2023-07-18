@@ -2,8 +2,6 @@
 
 # Introduction
 
-Introduction
-
 The workplace can be a challenging and competitive environment, where the path to success is not always clear. In order to grow and advance in your career, it's essential to have the right guidance and support. This is where mentorship comes in.
 
 Mentorship is a powerful tool for professional growth and development. It involves building meaningful relationships with experienced professionals who can offer guidance, advice, and support as you navigate your career path. Mentorship can help you gain new skills, expand your network, and achieve your goals more quickly and effectively than you would on your own.
