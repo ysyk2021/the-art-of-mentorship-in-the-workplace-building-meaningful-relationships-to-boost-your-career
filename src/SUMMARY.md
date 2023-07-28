@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [What is Mentorship?](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 1: The Benefits of Mentorship](chapter-2.md)
   - [The Importance of Mentorship in the Workplace](chapter-2-1.md)
   - [The Impact of Mentorship on Career Development](chapter-2-2.md)
