@@ -1,5 +1,4 @@
 
-
 In this book, we have explored the art of mentorship in the workplace and the importance of building meaningful relationships to boost your career. Through effective communication strategies and fostering a supportive mentorship environment, both mentors and mentees can experience personal and professional growth.
 
 Throughout the chapters, we discussed various aspects of mentorship, including active listening, clear and concise communication, open and honest dialogue, thought-provoking questioning, providing constructive feedback, paying attention to nonverbal cues, adapting communication styles, offering guidance and resources, scheduling regular check-ins, and practicing respect and empathy.
