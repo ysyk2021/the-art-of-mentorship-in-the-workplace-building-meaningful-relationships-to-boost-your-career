@@ -1,5 +1,3 @@
-Chapter 4: Navigating Challenges in Mentorship
-==============================================
 
 Mentorship is a valuable tool for personal and professional growth, but it is not without its challenges. This chapter will explore common challenges that may arise in mentorship relationships, strategies for overcoming these challenges, and knowing when to end a mentorship.
 

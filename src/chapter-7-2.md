@@ -1,5 +1,3 @@
-Strategies for Encouraging Mentorship
-==============================================
 
 In this chapter, we will explore effective strategies for encouraging mentorship in the workplace. Establishing a culture that supports and fosters mentorship relationships can have a profound impact on individual growth and organizational success. This chapter will discuss various approaches and initiatives to encourage mentorship.
 

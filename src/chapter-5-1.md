@@ -1,5 +1,3 @@
-Common Challenges in Mentorship
-========================================
 
 In this chapter, we will explore common challenges that may arise in mentorship relationships. While mentorship can be incredibly rewarding, it is not without its difficulties. Understanding and addressing these challenges can help mentors and mentees navigate potential obstacles and build more meaningful and effective mentoring relationships. This chapter will discuss several common challenges in mentorship and provide strategies for overcoming them.
 

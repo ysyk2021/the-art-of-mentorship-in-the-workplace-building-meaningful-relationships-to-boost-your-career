@@ -1,5 +1,3 @@
-Communication Strategies
-=================================
 
 In this chapter, we will explore effective communication strategies for fostering meaningful mentorship relationships in the workplace. Communication plays a vital role in mentorship, enabling mentors to guide and support mentees in their career development effectively.
 

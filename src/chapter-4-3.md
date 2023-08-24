@@ -1,5 +1,3 @@
-Setting Goals and Objectives
-=====================================
 
 In this chapter, we will delve into the importance of setting clear goals and objectives when engaging in mentorship in the workplace. Establishing well-defined goals provides a framework for the mentorship relationship and helps both mentors and mentees navigate their journey effectively.
 

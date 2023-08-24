@@ -1,5 +1,3 @@
-Chapter 5: Becoming a Mentor
-============================
 
 Becoming a mentor is a valuable way to give back to those who are seeking guidance and support in their personal and professional growth. In this chapter, we will explore the benefits of being a mentor, qualities of an effective mentor, steps to becoming a mentor, and balancing mentorship with other responsibilities.
 
@@ -52,5 +50,4 @@ Conclusion
 ----------
 
 In conclusion, becoming a mentor is a valuable way to give back to others while also benefiting from the experience. Effective mentors possess key qualities such as empathy, active listening skills, and a commitment to personal and professional growth. By following the steps outlined in this chapter and balancing mentorship with other responsibilities, individuals can become successful and impactful mentors.
-
 

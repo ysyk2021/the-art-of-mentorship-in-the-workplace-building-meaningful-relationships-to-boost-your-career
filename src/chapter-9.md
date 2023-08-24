@@ -1,5 +1,3 @@
-References
-==========
 
 List of Sources Cited in the Book
 ---------------------------------

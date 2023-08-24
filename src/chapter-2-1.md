@@ -1,5 +1,3 @@
-The Importance of Mentorship in the Workplace
-======================================================
 
 Mentorship plays a crucial role in fostering professional growth and development in the workplace. In this chapter, we will explore the importance of mentorship and its impact on building meaningful relationships to boost your career. Understanding the benefits of mentorship can inspire individuals to seek out mentors and actively engage in mentoring relationships.
 

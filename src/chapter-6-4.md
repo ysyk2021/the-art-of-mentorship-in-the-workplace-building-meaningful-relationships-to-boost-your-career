@@ -1,5 +1,3 @@
-Balancing Mentorship with Other Responsibilities
-==============================================================================
 
 Becoming a mentor can be a rewarding experience, but it also comes with its challenges. In this chapter, we will explore how to balance mentorship with other responsibilities in the workplace.
 

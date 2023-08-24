@@ -1,5 +1,3 @@
-Chapter 1: The Benefits of Mentorship
-=====================================
 
 Mentorship is a valuable tool for personal and professional growth. In this chapter, we will explore the importance of mentorship in the workplace, the impact of mentorship on career development, and the different types of mentors and their roles.
 

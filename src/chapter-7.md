@@ -1,5 +1,3 @@
-Chapter 6: Creating a Culture of Mentorship
-===========================================
 
 Creating a culture of mentorship is essential for fostering personal and professional growth within an organization. In this chapter, we will explore the importance of a mentorship culture, strategies for encouraging mentorship, and measuring the impact of mentorship programs.
 

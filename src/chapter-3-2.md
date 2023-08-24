@@ -1,5 +1,3 @@
-Strategies for Finding a Mentor
-========================================
 
 In this chapter, we will explore effective strategies for finding a mentor in the workplace. Finding the right mentor can significantly impact your career growth and development. By utilizing the following strategies, you can increase your chances of finding a mentor who aligns with your goals and aspirations.
 

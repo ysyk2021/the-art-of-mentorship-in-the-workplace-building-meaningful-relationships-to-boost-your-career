@@ -1,5 +1,3 @@
-Knowing When to End a Mentorship
-=========================================
 
 In this chapter, we will explore the important topic of knowing when to end a mentorship. While mentorship relationships are valuable and can have a lasting impact on one's career, there comes a time when it is appropriate to conclude the mentoring partnership. This chapter will discuss key considerations and indicators that signify the need to end a mentorship.
 

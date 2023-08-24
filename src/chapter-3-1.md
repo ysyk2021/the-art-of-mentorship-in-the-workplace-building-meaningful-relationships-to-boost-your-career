@@ -1,5 +1,3 @@
-Identifying Your Needs and Goals
-=============================================================
 
 Finding a mentor can be a valuable experience, but it is important to identify your needs and goals before seeking out a mentor. In this chapter, we will explore how to identify your needs and goals when finding a mentor.
 

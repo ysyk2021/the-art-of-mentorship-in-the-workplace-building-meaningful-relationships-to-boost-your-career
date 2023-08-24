@@ -1,5 +1,3 @@
-What is Mentorship?
-============================
 
 Mentorship is a powerful and transformative relationship that plays a pivotal role in personal and professional growth. In this chapter, we will delve into the concept of mentorship, exploring its definition, characteristics, and the value it brings to individuals seeking to boost their careers. Understanding what mentorship entails is essential for both mentors and mentees in building meaningful relationships that drive success and development.
 

@@ -1,5 +1,3 @@
-Recap of Key Points
-==============================
 
 Throughout "The Art of Mentorship in the Workplace: Building Meaningful Relationships to Boost Your Career," we have explored various concepts, strategies, and principles related to mentorship. As we conclude this book, let's recap some of the key points discussed:
 

@@ -1,5 +1,3 @@
-Establishing Expectations
-==================================
 
 Establishing clear expectations is a fundamental aspect of successful mentorship in the workplace. In this chapter, we will explore the importance of setting expectations for both mentors and mentees and how it contributes to building effective and meaningful mentoring relationships. Understanding the significance of establishing expectations can help individuals maximize the benefits of mentorship and ensure a positive and productive experience for all involved.
 

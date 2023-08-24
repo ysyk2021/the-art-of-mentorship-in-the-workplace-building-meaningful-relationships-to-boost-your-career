@@ -1,5 +1,3 @@
-Steps to Becoming a Mentor
-===================================
 
 In this chapter, we will explore the steps to becoming a mentor and how you can effectively contribute to building meaningful relationships in the workplace that boost your career. Mentoring is a powerful way to share knowledge, support others, and foster personal and professional growth.
 

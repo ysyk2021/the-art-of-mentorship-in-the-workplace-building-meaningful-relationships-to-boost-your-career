@@ -1,5 +1,3 @@
-Approaching Potential Mentors
-======================================
 
 In this chapter, we will explore effective strategies for approaching potential mentors in the workplace. Building a strong mentorship relationship is crucial for personal and professional growth. However, it can be intimidating to approach someone and initiate a mentoring connection. This chapter will guide you through the process of identifying and approaching potential mentors in a respectful and professional manner.
 

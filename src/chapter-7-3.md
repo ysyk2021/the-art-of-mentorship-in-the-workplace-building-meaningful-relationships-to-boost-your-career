@@ -1,5 +1,3 @@
-Measuring the Impact of Mentorship Programs
-========================================================================================
 
 Creating a culture of mentorship in the workplace requires a commitment to measuring the impact of mentorship programs. In this chapter, we will explore strategies for measuring the effectiveness of mentorship programs.
 

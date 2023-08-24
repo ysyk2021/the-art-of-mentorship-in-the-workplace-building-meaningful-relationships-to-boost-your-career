@@ -1,5 +1,3 @@
-Types of Mentors and Their Roles
-=========================================
 
 In this chapter, we will explore the different types of mentors that can play a vital role in mentorship relationships within the workplace. Understanding these various mentor types allows individuals to identify the most suitable mentors for their specific needs and goals, ultimately maximizing the benefits gained from the mentorship experience.
 

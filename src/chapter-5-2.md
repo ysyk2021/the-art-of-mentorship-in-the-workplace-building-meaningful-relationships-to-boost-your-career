@@ -1,5 +1,3 @@
-Strategies for Overcoming Challenges
-====================================================================================
 
 Mentorship relationships can present a range of challenges, but with the right strategies, it is possible to overcome these challenges and maintain a successful mentorship. In this chapter, we will explore strategies for overcoming challenges in mentorship.
 

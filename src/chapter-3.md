@@ -1,5 +1,3 @@
-Chapter 2: Finding a Mentor
-===========================
 
 Finding a mentor is an important step towards achieving personal and professional growth. In this chapter, we will explore strategies for finding a mentor, including identifying your needs and goals, seeking out potential mentors, approaching them effectively, and establishing clear expectations.
 

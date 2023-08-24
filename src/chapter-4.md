@@ -1,5 +1,3 @@
-Chapter 3: Building a Successful Mentor-Mentee Relationship
-===========================================================
 
 Building a successful mentor-mentee relationship is essential for achieving personal and professional growth. In this chapter, we will explore strategies for developing trust and respect, effective communication, setting goals and objectives, and creating a plan for success.
 

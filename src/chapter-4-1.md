@@ -1,5 +1,3 @@
-Developing Trust and Respect
-=====================================
 
 In this chapter, we will explore the importance of developing trust and respect in mentorship relationships. Trust and respect are crucial elements for building meaningful connections in the workplace, and they form the foundation for effective mentorship that boosts career growth.
 

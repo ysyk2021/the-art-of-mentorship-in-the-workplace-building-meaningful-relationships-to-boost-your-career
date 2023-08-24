@@ -1,5 +1,3 @@
-The Benefits of Being a Mentor
-=======================================
 
 In this chapter, we will explore the numerous benefits that come with being a mentor in the workplace. Mentoring not only positively impacts your mentee's career development but also offers significant advantages for your own personal and professional growth.
 

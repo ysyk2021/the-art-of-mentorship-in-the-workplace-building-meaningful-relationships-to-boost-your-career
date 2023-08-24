@@ -1,5 +1,3 @@
-Qualities of an Effective Mentor
-=========================================
 
 In this chapter, we will explore the qualities that contribute to being an effective mentor. Mentoring plays a vital role in the workplace, fostering professional growth, and boosting careers. An effective mentor possesses specific traits and characteristics that enable them to build meaningful relationships and guide their mentees towards success.
 
